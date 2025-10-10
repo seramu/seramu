@@ -1,5 +1,13 @@
-## Hi there 👋
+![Welcome Banner](https://cdn.pfps.gg/banners/9366-dazai.png)
 
+Ah, you've stumbled into my little pocket of the internet.  
+I'm 18, ENTP, and if life were a game, I'd already be trying to glitch through the walls just to see what happens.
+
+This profile? Utterly devoid of code.  
+It's here solely for game-related shenanigans, dramatic entrances, and the occasional existential crisis (optional, but recommended).
+
+Before you vanish into the digital mist, leave your mark and sign my atabook.  
+Who knows—maybe your signature will be the clue to life’s greatest mystery. Or at least a good laugh.
 <!--
 **seradore/seradore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
