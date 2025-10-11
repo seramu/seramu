@@ -1,13 +1,14 @@
-![Welcome Banner](https://www.pinterest.com/i/2sxzQ2EIU/)
+![Welcome Banner](https://i.pinimg.com/736x/82/4c/5a/824c5aaf733efad65458a0c7cb00e7c3.jpg)
 
-Ah, you've stumbled into my little pocket of the internet.  
-I'm 18, ENTP, and if life were a game, I'd already be trying to glitch through the walls just to see what happens.
+Congratulations, you’ve fallen headfirst into my little corner of the void.  
+I’m 18, ENTP, and thriving on a suspicious mix of curiosity and mischief. If reality had a reset button, I’d press it just to watch everyone scramble.
 
-This profile? Utterly devoid of code.  
-It's here solely for game-related shenanigans, dramatic entrances, and the occasional existential crisis (optional, but recommended).
+This profile is proudly void of code, logic, and any semblance of order.  
+Here, the only constants are questionable choices, dramatic flair, and the lingering suspicion that I’m up to something (I am).
 
-Before you vanish into the digital mist, leave your mark and sign my atabook.  
-Who knows—maybe your signature will be the clue to life’s greatest mystery. Or at least a good laugh.
+Stuck here? Excellent.  
+Sign my atabook before you escape—think of it as leaving a cryptic note in a locked room.  
+Maybe it’ll confuse the next traveller. Maybe it’ll confuse me. Either way, chaos wins.
 <!--
 **seradore/seradore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
