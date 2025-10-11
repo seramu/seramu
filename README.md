@@ -1,4 +1,4 @@
-![Welcome Banner](https://cdn.pfps.gg/banners/9366-dazai.png)
+![Welcome Banner](https://www.pinterest.com/i/2sxzQ2EIU/)
 
 Ah, you've stumbled into my little pocket of the internet.  
 I'm 18, ENTP, and if life were a game, I'd already be trying to glitch through the walls just to see what happens.
