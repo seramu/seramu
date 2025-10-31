@@ -1,6 +1,7 @@
 ![Welcome Banner](https://i.pinimg.com/736x/82/4c/5a/824c5aaf733efad65458a0c7cb00e7c3.jpg)
 
-Congratulations, you’ve fallen headfirst into my little corner of the void.  
+Congratulations, you’ve fallen headfirst into my little corner of the void.
+This Profile merely exists to give you some kind of Info on me (May Not be helpful Info).  
 I’m 18, ENTP, and thriving on a suspicious mix of curiosity and mischief. If reality had a reset button, I’d press it just to watch everyone scramble.
 
 This profile is proudly void of code, logic, and any semblance of order.  
